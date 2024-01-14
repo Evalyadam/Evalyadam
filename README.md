@@ -5,4 +5,5 @@
 - 📫 How to reach me: Through email (evaly0adam@gmail.com) and through discord (@evaly_adam).
 - 😄 Pronouns: He/Him.
 - ⚡ Fun fact: I'm learning C#, Java, and planning to make a programming language.
+- 🕒 I have too much free time..
 - <strong>💥 Please only contact by E-Mail If its urgent, If you wanna chat, use discord.<strong>
