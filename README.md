@@ -6,4 +6,5 @@
 - 😄 Pronouns: He/Him.
 - ⚡ Fun fact: I'm learning C#, Java, and planning to make a programming language.
 - 🕒 I have too much free time..
+- 💫 A bit of a coding addict.
 - <strong>💥 Please only contact by E-Mail If its urgent, If you wanna chat, use discord.<strong>
