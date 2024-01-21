@@ -8,3 +8,4 @@
 - 🕒 I have too much free time..
 - 💫 A bit of a coding addict.
 - <strong>💥 Please only contact by E-Mail If its urgent, If you wanna chat, use discord.<strong>
+-✨️ Fun fact 2:I use pydroid a lot when I wanna code random simple things.
